@@ -1,2 +1,2 @@
 # Loading-
-https://ozgesahin06.github.io/Loading/
+https://ozgesahin06.github.io/Loading-/
